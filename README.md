@@ -1,4 +1,4 @@
-### Hi there This is Manash Mazumdar👋
+### Hi there, This is Manash Mazumdar👋
 
 
 Here are some ideas to get you started:
