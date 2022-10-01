@@ -9,6 +9,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with Javascript and Backend Language
 - 💬 Ask me about Anythink 
 - 📫 How to reach me: [Telegram](https://t.me/M3an_X)
-- 😄 Pronouns: Hi/im
 - ⚡ Fun fact:  I am half finish (^_-)
 -->
